@@ -1,5 +1,4 @@
 # Aarush Kukreja #
-**Undergrad @ Princeton**
 
 **Socials:**  
 - **[LinkedIn](https://www.linkedin.com/in/aarush-kukreja/)**
